@@ -1,3 +1,5 @@
+![](https://i.imgur.com/r6H2kSF.jpeg)
+
 - 👋 Hi, I’m @NUROISEA
 - 👀 I’m interested in AI Generated Waifus
 - 📫 How to reach me [/u/CYTLNUROISEA](https://www.reddit.com/user/CYTLNUROISEA)
