@@ -1,4 +1,4 @@
-![](https://i.imgur.com/r6H2kSF.jpeg)
+![00000-R-ESRGAN 4x+](https://user-images.githubusercontent.com/120075289/214070150-f6bc7740-9182-4cd8-ac77-6df0cb8d6d1b.png)
 
 - 👋 Hi, I’m @NUROISEA
 - 👀 I’m interested in AI Generated Waifus
